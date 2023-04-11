@@ -4,4 +4,3 @@
 - 🧌 I’m currently learning C++
 - 💬 Ask me about Shoes 
 - 😄 Pronouns:he/him
-- ⚡ Favorite Artist: Lana del Rey and Pop Smoke
